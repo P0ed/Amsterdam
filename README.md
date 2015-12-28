@@ -22,6 +22,11 @@
 * Coffeeshop Bluebird — Прям в центре крафтово дунуть
 * Sarphatipark — Парк рядом с барами где-то в жопенях с локалсами
 * Kattenkabinet — Каттены
+* http://www.iamsterdam.com/en/visiting/what-to-do/eating-and-drinking/bars-and-cafes/brown-cafes
+* http://www.iamsterdam.com/en/visiting/what-to-do/eating-and-drinking/dining-out-amsterdam
+* http://www.theguardian.com/travel/2011/jun/22/top-10-budget-restaurants-amsterdam
+* http://www.telegraph.co.uk/travel/destinations/europe/netherlands/amsterdam/10631297/Amsterdams-best-cheap-restaurants.html
+* http://www.buzzfeed.com/maggyvaneijk/have-some-amsterdamn-good-food#.fe619XwE4
 
 
 Handy Phrases
