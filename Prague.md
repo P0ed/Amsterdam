@@ -4,10 +4,9 @@
 - [Chapeau Rouge](https://foursquare.com/v/chapeau-rouge/4adcda9cf964a520e54c21e3) Relaxed attitude towards weed.
 
 #Пить
-####Dlouhá Street
-- [ROXY/NoD](https://foursquare.com/v/roxynod/4adcda9cf964a5200e4d21e3)
-- [Harley's](https://foursquare.com/v/harleys/4b47d6cef964a5200b4126e3)
-
+- Dlouhá Street
+  - [ROXY/NoD](https://foursquare.com/v/roxynod/4adcda9cf964a5200e4d21e3)
+  - [Harley's](https://foursquare.com/v/harleys/4b47d6cef964a5200b4126e3)
 - Cafés Around Národní Tøída
 - Krymská Street
 - Náplavka
