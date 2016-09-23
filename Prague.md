@@ -7,10 +7,11 @@
 ####Dlouhá Street
 - [ROXY/NoD](https://foursquare.com/v/roxynod/4adcda9cf964a5200e4d21e3)
 - [Harley's](https://foursquare.com/v/harleys/4b47d6cef964a5200b4126e3)
-####Cafés Around Národní Tøída
-####Krymská Street
-####Náplavka
-####Žižkov and Vinohrady
+
+- Cafés Around Národní Tøída
+- Krymská Street
+- Náplavka
+- Žižkov and Vinohrady
 
 #Хавать
 - [Lokál Dlouhá](https://foursquare.com/v/lokál-dlouhá/4af5389cf964a5209af821e3)
