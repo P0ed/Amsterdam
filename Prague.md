@@ -2,6 +2,7 @@
 - [U Bukanýra](https://foursquare.com/v/u-bukanýra/4bb7e28f53649c74637046fb) This is kind of the best place in town. It's free to get in, it's cheap to get drunk and it's on a bloody boat, mate!
 - [Cross Club](https://foursquare.com/v/cross-club/4b055110f964a520b75722e3) Spiders on drugs. Come here for jungle, ska, punk, or rockabilly nights.
 - [Chapeau Rouge](https://foursquare.com/v/chapeau-rouge/4adcda9cf964a520e54c21e3) Relaxed attitude towards weed.
+- [Ивенты](https://goout.net/cs/praha/party/)
 
 #Пить
 - Dlouhá Street
