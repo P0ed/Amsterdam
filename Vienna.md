@@ -21,3 +21,12 @@
 
 #Рынки
 - [Brunnenmarkt](https://ru.foursquare.com/v/brunnenmarkt/4b07d25cf964a520410023e3)
+
+#Handy Phrases
+- Budan?: This is the most primitive way to ask for a fuck, which, as we all know, sometimes is just the perfect way to ask for a fuck.
+- Geh scheißen:  Fuck off
+- Krügerl vs. Halbe: Both are synonyms for “a pint of beer,” so you’ll definitely be needing them. The first one is used in Vienna and the second one pretty much everywhere else in Austria. Paradoxically, “Krügerl” translates to “tiny jar” although it’s actually not that small a beer, while “Halbe” means “Half” and refers to “half a litre of beer.”
+- Oida:  Youth slang for “dude,” most common among mall rats and assholes. Translates to “old guy,” means the opposite, and is used for emphasis at the end of pretty much every single sentence.
+- Tschick:  Austrian dialect word for “smoke” as in “cigarette.” Sounds just like “chick” and is often used by men to attract the latter.
+- Ur:  Means “ancient” in German, but “very” in Austrian. Puts emphasis on everything it precedes and is best used as a prefix to every single adjective you can imagine: urcool (very cool), urgut (very good), urnett (very nice). Only to be used in Vienna, though—everywhere else, people will hate you for using it, since they hate the Viennese.
+- Wappler:  Austrian dialect for douche. You’ll probably hear this one thrown at you a lot more than you’ll use it actively.
