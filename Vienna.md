@@ -16,8 +16,8 @@
 - [Tachles](https://ru.foursquare.com/v/tachles/4c6583dd19f3c9b6ec479dff)
 
 #Музеи
+- [Музей естествознания*](https://ru.foursquare.com/v/naturhistorisches-museum/4b1699f8f964a520c5ba23e3)
 - [MuseumsQuartier](https://ru.foursquare.com/v/museumsquartier/4d3f42108badba7adbfdb50b)
-- [Музей естествознания](https://ru.foursquare.com/v/naturhistorisches-museum/4b1699f8f964a520c5ba23e3)
 
 #Рынки
 - [Brunnenmarkt](https://ru.foursquare.com/v/brunnenmarkt/4b07d25cf964a520410023e3)
