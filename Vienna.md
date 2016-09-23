@@ -1,6 +1,7 @@
 #Тусить
 - [Fluc](https://ru.foursquare.com/v/fluc/4b058898f964a52088cf22e3)
 - [Flex](https://ru.foursquare.com/v/flex/4b058892f964a52034ce22e3)
+- [SASS](https://foursquare.com/v/sass-music-club/4b058892f964a5203cce22e3)
 
 #Хавать
 - [Yume*](https://ru.foursquare.com/v/yume/4b5b54b3f964a5201ff528e3)
