@@ -3,6 +3,8 @@
 - [Flex](https://ru.foursquare.com/v/flex/4b058892f964a52034ce22e3)
 - [SASS](https://foursquare.com/v/sass-music-club/4b058892f964a5203cce22e3)
 - [Pratersauna](https://www.facebook.com/events/155667664878368/)
+- [Werk](https://www.facebook.com/erdwerk.wien/)
+- [Donau Techno*](https://foursquare.com/v/donau-techno/4b058892f964a5203fce22e3)
 
 #Хавать
 - [Yume*](https://ru.foursquare.com/v/yume/4b5b54b3f964a5201ff528e3)
