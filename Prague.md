@@ -17,6 +17,7 @@
 - [Duende](https://foursquare.com/v/duende/4b89b449f964a520664c32e3)
 - [U Zlatého tygra](https://foursquare.com/v/u-zlatého-tygra/4adcda9bf964a5209d4c21e3)
 
+#Еда
 - Svíèková: If you want an authentic Czech dish, this is it at its most incomprehensible. The dish is made up of beef sirloin and dumplings smothered in a creamy carrot sauce, before being garnished with cranberries and whipped cream. In English, the name translates to something like "candle sauce," as it used to only be eaten after dark.
 - Goulash: This one is Hungarian originally, but the Czech Republic is crazy for goulash, and these days it's pretty hard to find a pub that doesn't have a plate of stew somewhere on the menu.
 - Knedlo-vepøo-zelo: This dish is literally called porko-dumplo-cabbo. There's a bit of pork, a bit of dumpling, and a bit of, you know, cabbo. We're a simple people, and we like our meals greasy and filling.
