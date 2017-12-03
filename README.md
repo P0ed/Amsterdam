@@ -4,3 +4,4 @@
 - [Vienna](Vienna.md)
 - [Bratislava](Bratislava.md)
 - [Prague](Prague.md)
+- [Berlin](Berlin.md)
