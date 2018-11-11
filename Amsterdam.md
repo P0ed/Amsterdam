@@ -28,6 +28,9 @@
 * http://www.telegraph.co.uk/travel/destinations/europe/netherlands/amsterdam/10631297/Amsterdams-best-cheap-restaurants.html
 * http://www.buzzfeed.com/maggyvaneijk/have-some-amsterdamn-good-food#.fe619XwE4
 
+Underground parties
+-------------------
+Having said that, if you’re looking for some direction and some cool crowds to hang with, it’s worth looking into both Rush Hour Records and Red Light Records, where you’ll find flyers for all the best underground parties. If there’s nothing here that excites you, then chances are you’re just not cut out for "fun," you miserable loser.
 
 Handy Phrases
 -------------
